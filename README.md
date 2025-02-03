@@ -14,4 +14,4 @@ Anyone of any ethnicity, sexuality or disability is welcome here. And if you don
 
 That's all, I hope you've understood. =)  
 
-Girls are now preparing...
+*Girls are now preparing...*
