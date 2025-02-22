@@ -1,7 +1,7 @@
 ## Welcome to my GitHub profile!
 
 ### Introduction
-I'm **Pizza**. I'm a big fan of the ***Touhou Project*** since 2022, and I do a lot of things related to it. I do it as a hobby and with no intention of making money or becoming famous from it.
+I'm **Pizza**, a big fan of the ***Touhou Project*** since 2022, and I do a lot of things related to it. I do it as a hobby and with no intention of making money or becoming famous from it.
 
 ### Focus
 I just want to share the things I think and do about Touhou, and show that it's not just a bullet hell game, but something deeper, such as its lore, the feelings it gives us, music, artworks and also the impact it has on Internet culture.  
