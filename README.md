@@ -1,4 +1,4 @@
-## Hello
+## Hello⭐
 
 I'm **Pizza**, a big fan of the ***Touhou Project*** and ZUN's works since 2022, and I do a lot of things related to it. I do it as a hobby and with no intention of making money or popularizing it.  
   
